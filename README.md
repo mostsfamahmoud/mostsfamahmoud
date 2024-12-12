@@ -11,6 +11,8 @@
 
 - 📫 How to reach me **mostafamahmoud.cse@gmail.com**
 
+- 📄 Know about my experiences [My Resume](https://drive.google.com/drive/folders/1tqnl3W7OXIXiIn_HPJ82Zle3od-K3Wx8?usp=sharing)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
